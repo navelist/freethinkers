@@ -6,7 +6,7 @@
 
 제1장 총강
 
-제1조 연합의 정의
+제1조 Freethinkers 연합
 
     1) Freethinkers 연합은 Freethinkers KAIST, Freethinkers SNU 두 단체의 연합으로 시작하며 이후 새로운 지부를 그 연합의 구성원으로 포함한다.
 
